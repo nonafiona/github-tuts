@@ -5,4 +5,4 @@ where/what do you call home?
 
 In the physical world - Ireland, the PNW, Sonoma County, and San Francisco. 
 
-In an abstract sense - in my creations & stories, in music, in books. fiction in general. 
+In an abstract sense - My own head. in my creations & stories, in music, in books. fiction in general. 
